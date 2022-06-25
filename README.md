@@ -7,4 +7,4 @@
  # 第五集:https://jsdelivr.bobodns1.ga/gh/loyejaotdiqr47123/cautious-octo-invention/xsiugiu3.mp3
  # 第六集:https://jsdelivr.bobodns1.ga/gh/loyejaotdiqr47123/cautious-octo-invention/4rcqyq56.mp3
  # 第七集:https://jsdelivr.bobodns1.ga/gh/loyejaotdiqr47123/cautious-octo-invention/kzo87aqy.mp3
- # 第八集:https://jsdelivr.bobodns1.ga/gh/loyejaotdiqr47123/cautious-octo-invention/bdghr4ak.mp3
+ # 第八集:https://jsdelivr.bobodns1.ga/gh/loyejaotdiqr47123/cautious-octo-invention@main/bdghr4ak.mp3
