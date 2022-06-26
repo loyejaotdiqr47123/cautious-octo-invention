@@ -10,3 +10,5 @@
  # 第八集:https://jsdelivr.bobodns1.ga/gh/loyejaotdiqr47123/cautious-octo-invention@main/bdghr4ak.mp3
  # 第九集:https://jsdelivr.bobodns1.ga/gh/loyejaotdiqr47123/cautious-octo-invention/fvidjltn.mp3
  # 第十集:https://jsdelivr.bobodns1.ga/gh/loyejaotdiqr47123/cautious-octo-invention/aztr6m9m.mp3
+### 网盘镜像:https://wp-3.bobodns1.ga/%E5%8F%A3%E8%A2%8B%E6%95%85%E4%BA%8B-%E9%85%B7%E5%93%A5%E7%88%B1%E5%8F%91%E6%98%8E-10%E5%AD%A3/
+#### 自动同步
